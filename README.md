@@ -7,4 +7,6 @@ Meu nome é Davi da Cruz Michelan
 - Utilizo esste espaço para minha organização e compartilhamento dos meus projetos.
 
 ### Você pode entrar em contato comigo 📫 davi.michelan@escola.pr.gov.br
+
+
 ![](https://media.tenor.com/rtnbglsMuBgAAAAd/elpepe.gif)
